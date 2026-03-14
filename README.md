@@ -4,8 +4,9 @@
  <p align="center">
 ✦ 我不太跟陌生人说话 ✦
 </p>
-<p align="center">
 ⤷  Moongel  and anything pronouns
+
+ <p align="center">
 ⌞ my baby: @pupyken@qwettychess@bellevoiresy ⌝
 </p>
 

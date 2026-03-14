@@ -1,7 +1,7 @@
 <p align="center">
 ─────────── ୨୧ ───────────
 </p> 
-<p align="center">
+✦ <p align="center">
 我不太跟陌生人说话。
 </p> 
 

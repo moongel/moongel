@@ -11,7 +11,7 @@
 𓏵
  </p>
  <p align="center">
-⌗mybaby:⌞@bupyken/@qwettychess/@bellevoiresy⌝ 𐔌՞. .՞𐦯.
+⌗mybaby:⌞@bupyken/@y0ungkeukeu/@bellevoiresy⌝ 𐔌՞. .՞𐦯.
  </p>
 
 ![gif](https://i.pinimg.com/originals/b0/2b/b8/b02bb8109bed831a57be70eff49e5487.gif)
